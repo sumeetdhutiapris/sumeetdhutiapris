@@ -2,7 +2,7 @@
 - 👀 I’m interested in discovering the meaning of life.
 - 🌱 I’m currently learning the next great viral meme
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me Mindreading
+- 📫 How to reach me: Mindreading
 - 😄 Pronouns: I no longer use them
 - ⚡ Fun fact: I argue with Alexa daily.
 
